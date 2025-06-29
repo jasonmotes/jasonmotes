@@ -49,7 +49,7 @@ I've led international infrastructure deployments, transitioned legacy operation
 
 - 📧 Email: [jason.motes.global@gmail.com](mailto:jason..motes.global@gmail.com)  
 - 🔗 LinkedIn: [linkedin.com/in/jasonmotes](https://linkedin.com/in/jasonmotes)  
-- 🖇️ Resume: [Download PDF](#)](https://drive.google.com/file/d/1t9kyQ_s6PUQEVRzuS0tAqn3vxmFWdmNV/view?usp=sharing)  
+- 🖇️ Resume: [https://drive.google.com/file/d/1t9kyQ_s6PUQEVRzuS0tAqn3vxmFWdmNV/view?usp=sharing]  
 
 ---
 
